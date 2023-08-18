@@ -6,7 +6,7 @@
 
 ### About me :eyes:
 
-- :dart: Full stack development 
+- :dart: Life isn’t about finding yourself. Life is about creating yourself. 
 - :e-mail: Ask me about anything **[vietthienbqn1998@gmail.com](mailto:vietthienbqn1998gmail.com)**
 
 ### Knownledge
